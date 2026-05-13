@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with custom new token sniper bot | liquidity-pool-analysis + simulation-mode, the #1 new token sniper bot. Includes liquidity-pool-analysis and
 
 
 
